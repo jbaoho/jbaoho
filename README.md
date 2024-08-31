@@ -23,6 +23,6 @@ I am Justin Ho, a Computer Science student attending Vanderbilt University's Sch
 
 👯 If you have any interest in working with me on any program ideas, startups, or fun projects please feel free to reach out. Similarly, any job, co-op, or internship opportunities are always welcome.
 
-📫 You can reach me at my email: justin.c.ho@vanderbilt.edu
+📫 You can reach me at my email: hojustin2005@outlook.com
 
 Welcome to my GitHub!!!
